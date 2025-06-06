@@ -10,7 +10,6 @@
 * Veg, Whatever you got around, or none at all.  (Often use left over roasted veg, such as: brussel sprouts, carrots, parsnips, corn, etc)
 * Oil/Butter.
 
-
 ## Instructions
 
 *  Ideally using a cast iron skillet or wok, melt some butter and add your rice.  Toast the rice for a little while, until you get some color on the rice.  Start cranking up the heat to high.
